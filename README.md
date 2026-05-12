@@ -1,4 +1,4 @@
-# -MY-FANDOMS-
+# -MY-FANDOMS-readme
 •cats are liquid
 •genshin impact
 •tadc
